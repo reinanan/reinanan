@@ -5,9 +5,9 @@
 
 
 # Rens INFO <𝟑 .ᐟ
-tips are appreciated since im new to this okay wow
+tipsare appreciated since im new to this okay wow
  ### i know im social and stuff but ummmm try not to form big groups around me thanks wow okay im serious
-## hellooo im ren this is stuff about me okay thanks
+## hellooo im ren this is stuff about me ok thanks
 credits to the amazing : mliozvueki
 ## Caution .ᐟ
  ### I make fat jokes and i criticise as a joke
@@ -35,6 +35,8 @@ i would love to become friends with yall but im too shy , busy or distracted som
 i love making friends okay
 
 I latch onto people quickly when we become friends, theres exceptions
+
+idm matching just ask me first
 
 ## Inspos are appreciated,  im glad someone likes my style
 by that i mean my skin on ponytown, if you wanna take inspo from smth else ask me / let me know
