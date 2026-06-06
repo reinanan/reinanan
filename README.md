@@ -23,9 +23,9 @@ credits to the amazing : mliozvueki
 ##  About Me ദ്ദി◝ ⩊ ◜.ᐟ !
 c+h is welcome, i just might start a conversation
 
- i dont like sitting in big crowds
+ i dont like sitting in big groups
 
-if we end up sitting in a crowd im just gonna move, yes you can joke about it
+if we end up sitting in a group i might move, yes you can joke about it
 
 i take jokes easily, just dont overdo them
 
