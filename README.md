@@ -32,8 +32,8 @@ i take jokes easily, just dont overdo them
 
 i might be dry sometimes but i dont mean that
 
-i would love to become friends with yall but im too shy sometimes so u might have to approach 
-me first because sometimes im too busy or distracted
+i would love to become friends with yall but im too shy , busy or distracted sometimes so u might have to approach me (w2i preferably)
+i love making friends okay
 
 I latch onto people quickly when we become friends, theres exceptions
 
