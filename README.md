@@ -10,6 +10,7 @@ tips are appreciated since im new to this okay wow
 credits to the amazing : mliozvueki
 ## Caution .ᐟ
  ### I make fat jokes and i criticise as a joke
+ i dont mean any of that, thats my way of joking but if ur gonna confront me about it idm i can explain myself if that makes u feel better
  
  ### If you ghost me im blocking/breaking contact/confronting wow okay thanks 
  i dont play about that deadass so dont be weird idc if this is corny thanks
