@@ -24,7 +24,7 @@ credits to the amazing : mliozvueki
 ##  About Me ദ്ദി◝ ⩊ ◜.ᐟ !
 c+h is welcome, i just might start a conversation
 
- i dont like sitting in big groups
+ # i know im social and stuff but ummmm try not to form big groups around me thanks wow okay im serious
 
 if we end up sitting in a group i might move, yes you can joke about it
 
