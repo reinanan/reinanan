@@ -45,4 +45,4 @@ by that i mean my skin on ponytown, if you wanna take inspo from smth else ask m
 # hi nil this is you
 ![imagealt](https://files.catbox.moe/ajf8nm.jpg)
 # hi chiyl this is you
-![imagealt](https://files.catbox.moe/b9vky8.png)
+![imagealt](https://files.catbox.moe/big7h4.jpg)
