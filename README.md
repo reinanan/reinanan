@@ -38,6 +38,8 @@ I latch onto people quickly when we become friends, theres exceptions
 
 idm matching just ask me first
 
+huge mizuki and ena kinnie ,,, 
+
 ## Inspos are appreciated,  im glad someone likes my style
 by that i mean my skin on ponytown, if you wanna take inspo from smth else ask me / let me know
 
