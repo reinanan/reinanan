@@ -7,7 +7,7 @@
 
 
 # Rens INFO <𝟑 .ᐟ
-tipsare appreciated since im new to this okay wow
+tips are appreciated since im new to this okay wow
  ### i know im social and stuff but ummmm try not to form big groups around me thanks wow okay im serious
 ## hellooo im ren this is stuff about me ok thanks
 
@@ -40,11 +40,15 @@ I latch onto people quickly when we become friends, theres exceptions
 
 idm matching just ask me first
 
-my kins are uhhh mizuki, ena mafuyu and an
+my kins are uhhh mizuki, ena, mafuyu and an
 
 i do things before i think so umm im actively working on that ok but tell me if ur uncomfortable
 
 im not playing ponytown often (imo) so you´ll have to ask me to play
+
+i dont like just mzen ok im not that lame i also like polyniigo mfen mznen (mizunene) nenekasa and etc
+
+im most of the time with my friends ok
 
 ## Inspos are appreciated,  im glad someone likes my style
 by that i mean my skin on ponytown, if you wanna take inspo from smth else ask me / let me know
