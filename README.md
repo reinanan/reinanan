@@ -1,4 +1,6 @@
 
+# 𝘪 𝘬𝘯𝘰𝘸 𝘪𝘧 𝘺𝘰𝘶 𝘭𝘰𝘰𝘬 𝘧𝘰𝘳 𝘮𝘦
+# 𝘪𝘥 𝘭𝘰𝘰𝘬 𝘺𝘰𝘶 𝘪𝘯 𝘵𝘩𝘦 𝘦𝘺𝘦
 ![imagealt](https://files.catbox.moe/dkq81q.png)
 
 
@@ -38,7 +40,11 @@ I latch onto people quickly when we become friends, theres exceptions
 
 idm matching just ask me first
 
-huge mizuki and ena kinnie ,,, 
+my kins are uhhh mizuki, ena mafuyu and an
+
+i do things before i think so umm im actively working on that ok but tell me if ur uncomfortable
+
+im not playing ponytown often (imo) so you´ll have to ask me to play
 
 ## Inspos are appreciated,  im glad someone likes my style
 by that i mean my skin on ponytown, if you wanna take inspo from smth else ask me / let me know
