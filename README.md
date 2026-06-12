@@ -1,7 +1,7 @@
 ![imagealt](https://files.catbox.moe/dkq81q.png)
 
 
-𝘪 𝘬𝘯𝘰𝘸 𝘪𝘧 𝘺𝘰𝘶 𝘭𝘰𝘰𝘬 𝘧𝘰𝘳 𝘮𝘦 𝘪𝘥 𝘭𝘰𝘰𝘬 𝘺𝘰𝘶 𝘪𝘯 𝘵𝘩𝘦 𝘦𝘺𝘦 . . . ♡ ![imagealt](https://files.catbox.moe/hblp9m.png)
+𝘪 𝘬𝘯𝘰𝘸 𝘪𝘧 𝘺𝘰𝘶 𝘭𝘰𝘰𝘬 𝘧𝘰𝘳 𝘮𝘦 𝘪𝘥 𝘭𝘰𝘰𝘬 𝘺𝘰𝘶 𝘪𝘯 𝘵𝘩𝘦 𝘦𝘺𝘦 . . . ♡ 
 
 
 
@@ -9,8 +9,7 @@
 tips are appreciated since im new to this okay wow
  ### i know im social and stuff but ummmm try not to form big groups around me thanks wow okay im serious
 ## hellooo im ren this is stuff about me ok thanks
-![imagealt](https://files.catbox.moe/gl3c78.png)
-
+![imagealt](https://files.catbox.moe/hblp9m.png)
 ## Caution .ᐟ
  ### I make fat jokes and i criticise as a joke
  i dont mean any of that, i cherish my friends alot and thats just my way of joking but if ur gonna confront me about it idm i can explain myself if that makes u feel better
