@@ -1,4 +1,4 @@
-![Static Badge](https://img.shields.io/badge/mzen%20fan%20since%202023-b2a2a2)
+![Static Badge](https://img.shields.io/badge/ena%20and%20mizuki%kinnie%-b2a2a2)
 ![imagealt](https://files.catbox.moe/dkq81q.png)
 
 
