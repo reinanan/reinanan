@@ -40,7 +40,7 @@ I latch onto people quickly when we become friends, theres exceptions
 
 idm matching just ask me first
 
-my kins are uhhh mizuki, ena, mafuyu and an
+my kins are uhhh mizuki, ena, mafuyu, an and airi sezaki
 
 i do things before i think so umm im actively working on that ok but tell me if ur uncomfortable
 
