@@ -52,6 +52,8 @@ im most of the time with my friends ok
 
 uhh i dont really like too woke people (when they have too many labels) but theres exceptions
 
+i will think less of you based on your interests
+
 ## Inspos are appreciated,  im glad someone likes my style
 by that i mean my skin on ponytown, if you wanna take inspo from smth else ask me / let me know
 
