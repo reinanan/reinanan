@@ -18,7 +18,7 @@ tips are appreciated since im new to this okay wow
  i dont play about that deadass so dont be weird idc if this is corny thanks
  
 
-![imagealt](https://files.catbox.moe/ujneua.png)
+
 ##  About Me ദ്ദി◝ ⩊ ◜.ᐟ !
 c+h is welcome, i just might start a conversation
 
@@ -50,7 +50,7 @@ uhh i dont really like too woke people (when they have too many labels) but ther
 i will think less of you if your interests are weird (imo)
 
 when im with someone ask me first (in whisper) before c+h thanks ok
-
+![imagealt](https://files.catbox.moe/ujneua.png)
 ## My interests
 : pjsk ,alien stage ,married in red ,chiikawa ,phighting class Ouran High School Host Club ,pupi's midnight munchies Danganronpa , saihate station, i love your cruddy, witch hat atelier, nso and thats it i think
 
