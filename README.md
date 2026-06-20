@@ -16,8 +16,9 @@ tips are appreciated since im new to this okay wow
 
   ### If you ghost me im blocking/breaking contact/confronting wow okay thanks 
  i dont play about that deadass so dont be weird idc if this is corny thanks
- ![imagealt](https://files.catbox.moe/ujneua.png)
  
+
+![imagealt](https://files.catbox.moe/ujneua.png)
 ##  About Me ദ്ദി◝ ⩊ ◜.ᐟ !
 c+h is welcome, i just might start a conversation
 
