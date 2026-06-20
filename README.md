@@ -52,7 +52,9 @@ im most of the time with my friends ok
 
 uhh i dont really like too woke people (when they have too many labels) but theres exceptions
 
-i will think less of you if your interests are weird (imo) 
+i will think less of you if your interests are weird (imo)
+
+when im with someone ask me first (in whisper) before c+h thanks ok
 
 ## My interests
 : pjsk ,alien stage ,married in red ,chiikawa ,phighting class Ouran High School Host Club ,pupi's midnight munchies Danganronpa , saihate station, i love your cruddy, witch hat atelier, nso and thats it i think
