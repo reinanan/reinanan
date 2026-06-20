@@ -21,7 +21,7 @@ tips are appreciated since im new to this okay wow
  the rest is in my strawpage
  (better viewed on mobile)
  
- ![imagealt](https://files.catbox.moe/e5hgii.gif)
+ ![imagealt](https://files.catbox.moe/heaau3.png)
  
 ##  About Me ദ്ദി◝ ⩊ ◜.ᐟ !
 c+h is welcome, i just might start a conversation
