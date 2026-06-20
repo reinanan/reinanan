@@ -54,6 +54,9 @@ uhh i dont really like too woke people (when they have too many labels) but ther
 
 i will think less of you if your interests are weird (imo) 
 
+## My interests
+: pjsk ,alien stage ,married in red ,chiikawa ,phighting class Ouran High School Host Club ,pupi's midnight munchies Danganronpa , saihate station, i love your cruddy, witch hat atelier, nso and thats it i think
+
 ## Inspos are appreciated,  im glad someone likes my style
 by that i mean my skin on ponytown, if you wanna take inspo from smth else ask me / let me know
 
