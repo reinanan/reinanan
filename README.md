@@ -49,7 +49,7 @@ i will think less of you if your interests are weird (imo)
 
 when im with someone ask me first (in whisper) before c+h thanks ok
 
-.
+
 
 ![imagealt](https://files.catbox.moe/ujneua.png)
 ## My interests
