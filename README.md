@@ -6,10 +6,13 @@
 # Reins INFO <𝟑 .ᐟ
 tips are appreciated since im new to this okay wow
  ### ummmm try not to form big groups when sitting with me ok thanks wow okay im serious ( exceptions )
+ 
 ## hellooo im rein this is stuff about me ok thanks
+
 ## Caution .ᐟ
  ### I make fat jokes and i criticise as a joke 
  i dont mean any of that, i cherish my friends alot and thats just my way of joking but if ur gonna confront me about it idm i can explain myself if that makes u feel better
+
  ### i want a mizuki to my ena so bad ok idc if this is corny  ![imagealt](https://files.catbox.moe/heaau3.png)
 
   ### If you ghost me im blocking/breaking contact/confronting wow okay thanks 
