@@ -65,6 +65,7 @@ by that i mean my skin on ponytown, if you wanna take inspo from smth else ask m
 # hi chuds
 ![imagealt](https://files.catbox.moe/1idmhu.png)
 
-# thanks miya for this ok
+# thanks miya for this ok and plus boy mizuki
 ![imagealt](https://files.catbox.moe/ue9jxu.png)
+![imagealt](https://files.catbox.moe/pcgalo.png)
 
