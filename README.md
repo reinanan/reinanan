@@ -1,7 +1,7 @@
 ![imagealt](https://files.catbox.moe/49geaa.png)
 ![Static Badge](https://img.shields.io/badge/mzk%20and%20ena%20kin-b2a2a2)
 
-" 𝘔𝘢𝘺𝘣𝘦 𝘪𝘧 𝘪 𝘧𝘶𝘤𝘬𝘦𝘥 𝘺𝘰𝘶 𝘣𝘦𝘵𝘵𝘦𝘳 𝘺𝘰𝘶´𝘥 𝘭𝘦𝘵 𝘮𝘦 𝘸𝘦𝘢𝘳 your 𝘴𝘸𝘦𝘢𝘵𝘦𝘳 "![imagealt](https://files.catbox.moe/quwnwx.webp)
+" 𝘔𝘢𝘺𝘣𝘦 𝘪𝘧 𝘪 𝘧𝘶𝘤𝘬𝘦𝘥 𝘺𝘰𝘶 𝘣𝘦𝘵𝘵𝘦𝘳 𝘺𝘰𝘶´𝘥 𝘭𝘦𝘵 𝘮𝘦 𝘸𝘦𝘢𝘳 your 𝘴𝘸𝘦𝘢𝘵𝘦𝘳 "![imagealt](https://files.catbox.moe/77xj1v.webp)
 
 # Reins INFO <𝟑 .ᐟ
 tips are appreciated since im new to this okay wow
