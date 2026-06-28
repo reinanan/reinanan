@@ -36,7 +36,6 @@ I latch onto people quickly when we become friends, theres exceptions
 
 idm matching just ask me first
 
-my kins are uhhh mizuki, ena, mafuyu, an and airi sezaki
 
 i do things before i think so umm im actively working on that ok but tell me if ur uncomfortable
 
@@ -51,6 +50,8 @@ uhh i dont really like too woke people (when they have too many labels) but ther
 i will think less of you if your interests are weird (imo)
 
 when im with someone ask me first (in whisper) before c+h thanks ok
+
+# my kins are uhhh mizuki, ena, mafuyu, an, airi sezaki, sua
 
 
 
