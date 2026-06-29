@@ -1,5 +1,5 @@
 ![imagealt](https://files.catbox.moe/hwowhf.png)
-![Static Badge](https://img.shields.io/badge/mzk%20and%20ena%20kin-b2a2a2)
+![Static Badge](https://img.shields.io/badge/ena%20fiction%20kin-b2a2a2)
 
 " 𝘔𝘢𝘺𝘣𝘦 𝘪𝘧 𝘪 𝘧𝘶𝘤𝘬𝘦𝘥 𝘺𝘰𝘶 𝘣𝘦𝘵𝘵𝘦𝘳 𝘺𝘰𝘶´𝘥 𝘭𝘦𝘵 𝘮𝘦 𝘸𝘦𝘢𝘳 your 𝘴𝘸𝘦𝘢𝘵𝘦𝘳 "![imagealt](https://files.catbox.moe/quwnwx.webp)
 
