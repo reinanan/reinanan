@@ -12,8 +12,7 @@ tips are appreciated since im new to this okay wow
 ## Caution .ᐟ
  ### I make fat jokes and i criticise as a joke 
  i dont mean any of that, i cherish my friends alot and thats just my way of joking but if ur gonna confront me about it idm i can explain myself if that makes u feel better
-
- ### i want a mizuki to my ena so bad ok idc if this is corny  ![imagealt](https://files.catbox.moe/heaau3.png)
+  ![imagealt](https://files.catbox.moe/heaau3.png)
 
   ### If you ghost me im blocking/breaking contact/confronting wow okay thanks 
  i dont play about that deadass so dont be weird idc if this is corny thanks
@@ -36,7 +35,6 @@ I latch onto people quickly when we become friends, theres exceptions
 
 idm matching just ask me first
 
-
 i do things before i think so umm im actively working on that ok but tell me if ur uncomfortable
 
 im not playing ponytown often (imo) so you´ll have to ask me to play
@@ -51,7 +49,7 @@ i will think less of you if your interests are weird (imo)
 
 when im with someone ask me first (in whisper) before c+h thanks ok
 
-# my kins are uhhh mizuki, ena, mafuyu, an, airi sezaki, sua
+# my kins are uhhh mizuki, ena, mafuyu, an, airi sezaki, sua, ame ( nso )
 
 
 
