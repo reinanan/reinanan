@@ -1,6 +1,6 @@
 ![imagealt](https://litter.catbox.moe/7pku16.png)
 ![Static Badge](https://img.shields.io/badge/ena%20airi%20-and%20mizuki%20fic%20kin-black)
-⁽ᵐᵃⁱⁿˡʸ ᵉⁿᵃ ᵒᵏ ᵈᵒⁿᵗ ˢˡⁱᵐᵉ ᵐᵉ. ⁱᵈᶜ ᵃᵇᵒᵘᵗ ᵈᵒᵘᵇˡᵉˢ.ᵃⁱʳⁱ ˢᵉᶻᵃᵏⁱ ⁿᵒᵗ ᵃⁱʳⁱ ᵐᵒᵐᵒⁱ ᵗʸ⁾
+⁽ᵐᵃⁱⁿˡʸ ᵃⁱʳⁱ ᵒᵏ ᵈᵒⁿᵗ ˢˡⁱᵐᵉ ᵐᵉ. ⁱᵈᶜ ᵃᵇᵒᵘᵗ ᵈᵒᵘᵇˡᵉˢ.ᵃⁱʳⁱ ˢᵉᶻᵃᵏⁱ ⁿᵒᵗ ᵃⁱʳⁱ ᵐᵒᵐᵒⁱ ᵗʸ⁾
 
 " 𝘔𝘢𝘺𝘣𝘦 𝘪𝘧 𝘪 𝘧𝘶𝘤𝘬𝘦𝘥 𝘺𝘰𝘶 𝘣𝘦𝘵𝘵𝘦𝘳 𝘺𝘰𝘶´𝘥 𝘭𝘦𝘵 𝘮𝘦 𝘸𝘦𝘢𝘳 your 𝘴𝘸𝘦𝘢𝘵𝘦𝘳 "![imagealt](https://files.catbox.moe/quwnwx.webp)
 
