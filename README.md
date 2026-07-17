@@ -43,8 +43,6 @@ i dont like just mzen ok im not that lame i also like polyniigo mfen mznen (mizu
 
 im most of the time with my friends ok
 
-uhh i dont really like too woke people (when they have too many labels) but theres exceptions
-
 i will think less of you if your interests are weird (imo)
 
 when im with someone ask me first (in whisper) before c+h thanks ok
