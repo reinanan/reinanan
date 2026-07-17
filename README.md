@@ -2,7 +2,7 @@
 ![Static Badge](https://img.shields.io/badge/ena%20airi%20-and%20mizuki%20fic%20kin-black)
 ⁽ᵐᵃⁱⁿˡʸ ᵃⁱʳⁱ ᵒᵏ ᵈᵒⁿᵗ ˢˡⁱᵐᵉ ᵐᵉ. ⁱᵈᶜ ᵃᵇᵒᵘᵗ ᵈᵒᵘᵇˡᵉˢ.ᵃⁱʳⁱ ˢᵉᶻᵃᵏⁱ ⁿᵒᵗ ᵃⁱʳⁱ ᵐᵒᵐᵒⁱ ᵗʸ⁾
 
-" 𝘔𝘢𝘺𝘣𝘦 𝘪𝘧 𝘪 𝘧𝘶𝘤𝘬𝘦𝘥 𝘺𝘰𝘶 𝘣𝘦𝘵𝘵𝘦𝘳 𝘺𝘰𝘶´𝘥 𝘭𝘦𝘵 𝘮𝘦 𝘸𝘦𝘢𝘳 your 𝘴𝘸𝘦𝘢𝘵𝘦𝘳 "![imagealt](https://files.catbox.moe/quwnwx.webp)
+" 𝘉𝘶𝘵 𝘸𝘪𝘵𝘩 𝘦𝘷𝘦𝘳𝘺𝘣𝘰𝘥𝘺 𝘸𝘢𝘵𝘤𝘩𝘪𝘯𝘨 𝘶𝘴, 𝘰𝘶𝘳 𝘦𝘷𝘦𝘳𝘺 𝘮𝘰𝘷𝘦, 𝘸𝘦 𝘥𝘰 𝘩𝘢𝘷𝘦 𝘳𝘦𝘱𝘶𝘵𝘢𝘵𝘪𝘰𝘯𝘴 " "![imagealt](https://files.catbox.moe/quwnwx.webp)
 
 # Reins INFO <𝟑 .ᐟ
 tips are appreciated since im new to this okay wow
@@ -49,7 +49,7 @@ i will think less of you if your interests are weird (imo)
 
 when im with someone ask me first (in whisper) before c+h thanks ok
 
-# my kins are uhhh mizuki, ena, mafuyu, an, airi sezaki, sua, ame ( nso )
+# my kins are uhhh mizuki, ena, mafuyu, airi sezaki, sua, ame ( nso ) asuka langley , rabbids, kaguya from cosmic princess ok thats it i think
 
 
 
