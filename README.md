@@ -22,7 +22,7 @@ tips are appreciated since im new to this okay wow
 ##  About Me ദ്ദി◝ ⩊ ◜.ᐟ !
 c+h is welcome, i just might start a conversation
 
-if we end up sitting in a group i might m8ove, yes you can joke about it
+if we end up sitting in a group i might move, yes you can joke about it
 
 i take jokes easily, just dont overdo them
 
