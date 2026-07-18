@@ -18,6 +18,7 @@ tips are appreciated since im new to this okay wow
  i dont play about that deadass so dont be weird idc if this is corny thanks
 
 ### my humor can be something else sometimes so please just block me if you dont like it, i mean it okay
+as i said i do not MEAN any of those jokes, im actively trying to change please and thanks you
  
 
 
