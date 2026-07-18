@@ -11,11 +11,13 @@ tips are appreciated since im new to this okay wow
 ## hellooo im rein this is stuff about me ok thanks
 
 ## Caution .ᐟ
- ### I make fat jokes and i criticise as a joke 
+### I make fat jokes and i criticise as a joke 
  i dont mean any of that, i cherish my friends alot and thats just my way of joking but if ur gonna confront me about it idm i can explain myself if that makes u feel better
 
-  ### If you ghost me im blocking/breaking contact/confronting wow okay thanks 
+### If you ghost me im blocking/breaking contact/confronting wow okay thanks 
  i dont play about that deadass so dont be weird idc if this is corny thanks
+
+### my humor can be something else sometimes so please just block me if you dont like it, i mean it okay
  
 
 
