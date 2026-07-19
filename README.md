@@ -19,7 +19,9 @@ tips are appreciated since im new to this okay wow
 
 ### my humor can be something else sometimes so please just block me if you dont like it, i mean it okay
 as i said i do not MEAN any of those jokes, im actively trying to change thanks
- 
+
+### if you dont like anything about me just dni please thanksyou
+idc if this sounds corny ok i mean it
 
 
 ##  About Me ദ്ദി◝ ⩊ ◜.ᐟ !
