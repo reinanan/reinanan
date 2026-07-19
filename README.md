@@ -6,7 +6,6 @@
 
 # Reins INFO <𝟑 .ᐟ
 tips are appreciated since im new to this okay wow
- ### ummmm try not to form big groups when sitting with me ok thanks wow okay im serious ( exceptions )
  
 ## hellooo im rein this is stuff about me ok thanks
 
