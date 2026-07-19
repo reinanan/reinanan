@@ -51,7 +51,7 @@ i will think less of you if your interests are weird (imo)
 
 when im with someone ask me first (in whisper) before c+h thanks ok
 
-# my kins are uhhh mizuki, ena, mafuyu, airi sezaki, sua, ame ( nso ) asuka langley , rabbids, kaguya from cosmic princess ok thats it i think
+# my kins are uhhh mizuki, ena, mafuyu, airi sezaki, sua, ame ( nso ) asuka langley , rabbids, kaguya from cosmic princess, sendai hazuki ok thats it i think
 
 
 
